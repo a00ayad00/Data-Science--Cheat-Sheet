@@ -1,3 +1,5 @@
+**I forked this repo from my classmate, Kareem Negm, that passed away on 26-06-2022.<br>May God's mercy be upon you, Kareem, and may god bless your soul💔💔<br>Please, pray to him🤎🖤**
+
 ### My social accounts:
 - [LinkedIn](https://www.linkedin.com/in/a00ayad/)
 - [kaggle](https://www.kaggle.com/abdullah3yad)
